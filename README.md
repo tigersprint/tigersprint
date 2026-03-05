@@ -1,6 +1,8 @@
-<p align="center"><img src="https://komarev.com/ghpvc/?username=tigerprint&color=BA261C&label=viewers" alt="Centered Image">
+<p align="center"><img src="https://komarev.com/ghpvc/?username=tigerprint&color=7febe2&label=viewers" alt="Centered Image">
 ㅤ
-<p align="center"><img width="700" height="650" alt="image" src="https://github.com/user-attachments/assets/28b0b261-106e-44ff-b2b3-7d2988f63bb2" />
+<p align="center"><img width="1350" height="1274" alt="image" src="https://github.com/user-attachments/assets/c1a8945a-e1dd-4302-bd69-289b862b4921" />
+
+
 
  
 ㅤㅤㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/tigersprint)ㅤㅤ⟡ㅤㅤ[prncard](https://pronouns.cc/@tigerprint)ㅤㅤ⟡ㅤㅤ[atabook](https://tigerprint.atabook.org/)
