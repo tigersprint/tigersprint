@@ -6,4 +6,4 @@
 
  
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤㅤㅤ
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![prncard](https://files.catbox.moe/r4xllf.webp)](https://pronouns.cc/@tigersprint)ㅤㅤㅤㅤ[![rentry](https://files.catbox.moe/me92l6.webp)](https://rentry.co/tigersprint)ㅤㅤㅤㅤ[![atabook](https://files.catbox.moe/ywr1jo.webp)](https://tigersprint.atabook.org/)
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![prncard](https://files.catbox.moe/r4xllf.webp)](https://pronouns.cc/@tigersprint)ㅤㅤㅤㅤ[![rentry](https://files.catbox.moe/me92l6.webp)](https://rentry.co/tigersprint)ㅤㅤㅤㅤ[![atabook](https://files.catbox.moe/ywr1jo.webp)](https://tigersprint.atabook.org/)
