@@ -15,3 +15,6 @@
 <p align="center"> ────────────────────────────────────────────────────
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ[![matching](https://files.catbox.moe/y5820a.webp)](https://rentry.co/fushiitaa)ㅤㅤㅤㅤ[![matching](https://files.catbox.moe/y5820a.webp)](https://rentry.co/satoosuguruu)
+
+<p align="center"><img width="1334" height="635" alt="image" src="https://github.com/user-attachments/assets/973de759-4408-4dcb-a317-dd9ef17be3ac" />
+WHO THE FUCK IS THIS WHY DID THEY COPY MY SHIT???? IM NOT FAMOUS TO BE COPIED THE FUCK
