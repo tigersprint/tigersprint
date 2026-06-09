@@ -1,20 +1,5 @@
-<p align="center"><img src="https://komarev.com/ghpvc/?username=tigersprint&color=7febe2&label=ㅤdivineㅤdogsㅤ" alt="Centered Image">
+<p align="center"><img src="https://komarev.com/ghpvc/?username=tigersprint&color=E9A135&label=ㅤtwitchㅤviewersㅤ" alt="Centered Image">
 
-<p align="center"><img width="800" height="600" alt="image" src="https://github.com/user-attachments/assets/4b0385e4-c0c7-4aba-9408-4b26e0efa45c" />
-
-
-
-
- 
-ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤㅤㅤ
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![prncard](https://files.catbox.moe/r4xllf.webp)](https://pronouns.cc/@tigersprint)ㅤㅤㅤㅤ[![rentry](https://files.catbox.moe/me92l6.webp)](https://rentry.co/tigersprint)ㅤㅤㅤㅤ[![atabook](https://files.catbox.moe/ywr1jo.webp)](https://tigersprint.atabook.org/)
-ㅤㅤㅤ
-ㅤㅤ
-ㅤㅤ
-ㅤㅤㅤ
+<p align="center"><img width="800" height="600" alt="image" src="https://files.catbox.moe/c7ke8i.jpg" />
+<p align="center">redoing my github okk
 <p align="center"> ────────────────────────────────────────────────────
-
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ[![matching](https://files.catbox.moe/y5820a.webp)](https://rentry.co/fushiitaa)ㅤㅤㅤㅤ[![matching](https://files.catbox.moe/y5820a.webp)](https://rentry.co/satoosuguruu)
-
-<p align="center"><img width="1334" height="635" alt="image" src="https://github.com/user-attachments/assets/973de759-4408-4dcb-a317-dd9ef17be3ac" />
-WHO THE FUCK IS THIS WHY DID THEY COPY MY SHIT???? IM NOT FAMOUS TO BE COPIED THE FUCK dont let me know who yo ass if you one of my oomfs come out.
